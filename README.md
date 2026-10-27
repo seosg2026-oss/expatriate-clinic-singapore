@@ -1,6 +1,7 @@
 # expatriate-clinic-singapore
 
-Why an Expatriate Clinic Singapore Residents Trust Makes Relocation Easier
+**Why an Expatriate Clinic Singapore Residents Trust Makes Relocation Easier**
+
 <img width="1200" height="900" alt="expatriate-clinic-singapore" src="https://github.com/user-attachments/assets/077a349f-61c5-4e82-b90c-0ef1bb36f7fb" />
 
 Relocating to Singapore brings new opportunities, but it also brings practical questions about where to find good medical care. A reliable expatriate clinic Singapore gives newcomers peace of mind, ensuring someone is ready to help with everything from a seasonal infection to long term health planning. Complete Healthcare International (CHI), Singapore, welcomes expatriates and their families with attentive, clear, and professional primary care.
